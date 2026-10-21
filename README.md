@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-SACE721226HDGCSS08
+SACE721226HDGCSS08
